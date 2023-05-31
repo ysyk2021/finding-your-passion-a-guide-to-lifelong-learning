@@ -10,7 +10,7 @@ This book is not just for those just starting out on their career path; it is fo
 
 In the following chapters, we will explore various strategies and techniques for identifying your passions, setting goals, and pursuing your dreams. We will discuss the importance of a growth mindset and the power of self-discovery. By the end of this book, you will have a better understanding of how to live a purpose-driven life and achieve lifelong learning and personal growth.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 1. personal growth
