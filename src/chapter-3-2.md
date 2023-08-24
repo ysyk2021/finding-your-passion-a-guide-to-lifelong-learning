@@ -1,5 +1,3 @@
-Techniques for Exploring New Interests
-============================================================================
 
 Identifying your passions is the first step in pursuing a fulfilling and rewarding life. In this chapter, we'll explore techniques for exploring new interests and discovering your passions.
 

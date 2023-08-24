@@ -1,5 +1,3 @@
-Overcoming Common Barriers to Discovering Your Passions
-=============================================================================================
 
 Identifying your passions can be a challenging process. In this chapter, we'll explore common barriers to discovering your passions and strategies for overcoming them.
 

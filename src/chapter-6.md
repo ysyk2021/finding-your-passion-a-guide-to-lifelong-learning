@@ -1,5 +1,3 @@
-Chapter 5: Navigating Roadblocks and Setbacks
-=============================================
 
 In pursuing your passions, it's common to encounter roadblocks and setbacks. In this chapter, we'll explore strategies for navigating these challenges and staying on track towards your goals.
 

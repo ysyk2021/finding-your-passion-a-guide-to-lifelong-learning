@@ -1,5 +1,3 @@
-The Role of Resilience in Pursuing Your Passion
-==============================================================================================
 
 Resilience is the ability to bounce back from setbacks and keep moving forward towards your goals. In pursuing your passions, resilience is essential for staying motivated and overcoming obstacles. Here are some ways to cultivate resilience:
 

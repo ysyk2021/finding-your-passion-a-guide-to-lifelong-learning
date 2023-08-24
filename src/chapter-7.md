@@ -1,5 +1,3 @@
-Chapter 6: Networking and Collaborating with Others
-===================================================
 
 Networking and collaborating with others can be incredibly valuable when pursuing your passions. In this chapter, we'll explore the benefits of networking and collaboration, strategies for building a community around your passion, and how to overcome common challenges that may arise.
 

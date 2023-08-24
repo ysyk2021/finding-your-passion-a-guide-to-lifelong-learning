@@ -1,5 +1,3 @@
-The Impact of Passion on Motivation and Fulfillment
-===========================================================================================================
 
 Passion is a powerful force that can have a significant impact on our motivation and fulfillment in life. In this chapter, we'll explore how pursuing our passions can enhance our lives.
 

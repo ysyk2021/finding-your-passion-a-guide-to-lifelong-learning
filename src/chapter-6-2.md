@@ -1,5 +1,3 @@
-Overcoming Fear and Self-Doubt
-=============================================================================
 
 Fear and self-doubt can be significant barriers to pursuing your passions. Here are some tips for overcoming these obstacles:
 

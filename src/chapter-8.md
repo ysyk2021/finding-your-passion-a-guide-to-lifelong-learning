@@ -1,5 +1,3 @@
-Chapter 7: Measuring Success
-============================
 
 Measuring success is critical to understanding the impact of pursuing your passion and making informed decisions about future initiatives. In this chapter, we'll explore the importance of measuring success, key metrics for tracking progress and success, and using data to make informed decisions about future passion initiatives.
 

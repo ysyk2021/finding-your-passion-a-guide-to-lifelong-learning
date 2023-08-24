@@ -1,5 +1,3 @@
-Chapter 3: Pursuing Your Passion through Learning
-=================================================
 
 Pursuing your passion through learning is a journey that requires dedication, perseverance, and an open mind. In this chapter, we'll explore techniques for pursuing your passion through learning, incorporating passion into your career or hobby pursuits, and overcoming common challenges.
 

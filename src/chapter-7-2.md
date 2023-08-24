@@ -1,5 +1,3 @@
-Strategies for Building a Community Around Your Passion
-============================================================================================================
 
 Networking and collaborating with others can be incredibly beneficial when pursuing your passions. By building a community around your interests, you can gain support, learn from others, and find new opportunities for growth. In this chapter, we'll explore strategies for building a community around your passion.
 

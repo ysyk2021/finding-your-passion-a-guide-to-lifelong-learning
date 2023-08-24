@@ -1,5 +1,3 @@
-Chapter 2: Identifying Your Passions
-====================================
 
 Identifying your passions is a crucial step towards living a fulfilling and meaningful life. In this chapter, we'll explore strategies for identifying your passions, techniques for exploring new interests, and overcoming common barriers to discovering your passions.
 
