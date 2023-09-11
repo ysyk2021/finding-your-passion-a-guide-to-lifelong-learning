@@ -1,5 +1,4 @@
-Chapter 9: Incorporating Passion into Your Career or Hobby Pursuits
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for incorporating your passion into your career or hobby pursuits. Finding a way to integrate your passion into your professional or personal life can bring immense fulfillment and satisfaction. Whether you aspire to turn your passion into a full-time career or simply want to enjoy it as a fulfilling hobby, this chapter will provide guidance on how to make it a reality.
 

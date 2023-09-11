@@ -1,5 +1,4 @@
-Chapter 7: The Role of Resilience in Pursuing Your Passion
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the role of resilience in pursuing your passion. Resilience is the ability to bounce back from setbacks, adapt to challenges, and persevere in the face of obstacles. When it comes to pursuing your passion, resilience plays a crucial role in overcoming barriers, maintaining motivation, and achieving long-term success. Let's delve into the importance of resilience and discover strategies to cultivate it.
 

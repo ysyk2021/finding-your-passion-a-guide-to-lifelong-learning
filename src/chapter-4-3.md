@@ -1,5 +1,4 @@
-Chapter 8: Overcoming Common Challenges with Pursuing Your Passion through Learning
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore common challenges that people face when pursuing their passion through learning and provide strategies for overcoming them. Learning is an essential component of finding and nurturing your passion, but it can also present various obstacles that may hinder your progress. By understanding these challenges and implementing effective strategies, you can navigate the learning journey more successfully. Let's delve into these challenges and how to overcome them:
 

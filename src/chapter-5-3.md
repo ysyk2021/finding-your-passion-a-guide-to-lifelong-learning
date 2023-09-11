@@ -1,5 +1,4 @@
-Chapter 4: Overcoming Common Barriers to Skill Development
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore common barriers that individuals face when it comes to skill development and provide strategies to overcome them. By understanding and addressing these obstacles, we can effectively pursue lifelong learning and skill enhancement.
 

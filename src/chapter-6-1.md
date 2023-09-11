@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Navigating Roadblocks and Setbacks in Pursuing Your Passion
-=====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for effectively navigating roadblocks and setbacks in pursuing your passion. The journey to pursuing your passion is rarely smooth sailing. Along the way, you may encounter various roadblocks and setbacks that can hinder your progress and test your determination. By developing strategies to overcome these challenges, you can stay on track and continue moving forward. Let's dive into these strategies:
 

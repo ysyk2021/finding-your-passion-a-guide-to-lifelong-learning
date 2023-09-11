@@ -1,5 +1,4 @@
-Chapter 9: The Importance of Building Skills and Expertise in Your Passion
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of building skills and expertise in your chosen passion. Whether it's a hobby, career interest, or personal pursuit, developing proficiency in your passion is essential for personal growth, fulfillment, and achieving success. By investing time and effort into building skills and expertise, you can unlock new opportunities and reach greater heights in your journey of lifelong learning.
 

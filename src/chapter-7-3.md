@@ -1,5 +1,4 @@
-Chapter 8: Overcoming Common Challenges with Networking and Collaboration
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will address common challenges that many individuals face when it comes to networking and collaboration. Building strong connections and collaborating effectively are essential for lifelong learning and pursuing your passion. By understanding and overcoming these challenges, you can maximize the benefits of networking and collaboration.
 

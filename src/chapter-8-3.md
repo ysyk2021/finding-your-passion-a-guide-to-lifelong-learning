@@ -1,5 +1,4 @@
-Chapter 7: Using Data to Make Informed Decisions about Future Passion Initiatives
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the power of data in making informed decisions about future passion initiatives. Data can provide valuable insights, help you evaluate options, and guide your decision-making process. By leveraging data effectively, you can increase the chances of success and fulfillment in your lifelong learning journey. This chapter will introduce various data-driven approaches and techniques to aid in decision-making regarding your passion initiatives.
 

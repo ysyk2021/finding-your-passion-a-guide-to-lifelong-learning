@@ -1,5 +1,4 @@
-Chapter 3: The Benefits of Lifelong Learning for Personal Growth and Wellbeing
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the myriad benefits that lifelong learning brings to personal growth and overall wellbeing. Understanding how lifelong learning positively impacts our lives is essential for finding fulfillment and maintaining a sense of purpose.
 

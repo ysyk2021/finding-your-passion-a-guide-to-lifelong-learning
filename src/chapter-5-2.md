@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Developing Skills and Expertise
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for developing skills and expertise in pursuit of your passion. By implementing these strategies, you can embark on a fulfilling lifelong learning journey and continuously enhance your abilities.
 

@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Building a Community Around Your Passion
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for building a community around your passion. Creating a supportive and engaged community can enhance your lifelong learning journey and provide a network of like-minded individuals who share your interests.
 

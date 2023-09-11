@@ -1,5 +1,4 @@
-Chapter 6: Overcoming Common Barriers to Discovering Your Passions
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore common barriers that hinder individuals from discovering their passions and provide strategies to overcome them. Identifying and pursuing your passions is a vital step towards a fulfilling life of lifelong learning. By addressing these barriers head-on, you can unlock your true potential and embark on a journey of self-discovery.
 

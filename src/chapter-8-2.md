@@ -1,5 +1,4 @@
-Chapter 6: Key Metrics for Tracking Progress and Success
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of tracking progress and success in your journey of finding your passion and lifelong learning. By measuring key metrics, you can effectively assess your growth, stay motivated, and make informed decisions. This chapter will introduce several essential metrics that can help you track your progress and evaluate your success along the way.
 

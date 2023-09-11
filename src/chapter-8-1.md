@@ -1,5 +1,4 @@
-Chapter 8: The Importance of Measuring Success in Pursuing Your Passion
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of measuring success in pursuing your passion. Measuring success is critical to ensure that you are making progress towards your goals and achieving fulfillment from your passions. We will discuss various ways to measure success and how to determine what success means to you.
 

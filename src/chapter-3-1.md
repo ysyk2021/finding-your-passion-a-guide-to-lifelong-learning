@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Identifying Your Passions
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various strategies and techniques to help you identify your passions. Discovering your true passions is essential for leading a fulfilling life and pursuing meaningful goals. By following these strategies, you can gain clarity, explore your interests, and uncover what truly inspires and motivates you.
 

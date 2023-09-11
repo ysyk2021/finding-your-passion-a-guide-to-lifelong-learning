@@ -1,5 +1,4 @@
-Chapter 12: Techniques for Pursuing Your Passion Through Learning
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for pursuing your passion through learning. Learning is a powerful tool that can help you deepen your understanding, develop new skills, and explore avenues aligned with your passions. By incorporating effective learning techniques into your journey, you can maximize your growth potential and cultivate a lifelong love for learning. Let's explore these techniques:
 

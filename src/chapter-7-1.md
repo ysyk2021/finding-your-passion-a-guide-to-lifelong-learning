@@ -1,5 +1,4 @@
-Chapter 5: The Benefits of Networking and Collaborating with Others in Pursuing Your Passion
-============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant benefits that networking and collaborating with others bring to pursuing your passion. Building connections and engaging in collaborative efforts play a vital role in lifelong learning and personal growth.
 

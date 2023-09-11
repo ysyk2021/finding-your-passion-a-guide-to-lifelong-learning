@@ -1,5 +1,4 @@
-Chapter 7: Techniques for Exploring New Interests
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques that can help you effectively explore new interests. By employing these techniques, you can expand your horizons, discover new passions, and embark on a lifelong journey of learning and personal growth.
 

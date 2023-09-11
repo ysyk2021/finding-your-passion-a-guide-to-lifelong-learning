@@ -1,5 +1,4 @@
-Chapter 2: The Impact of Passion on Motivation and Fulfillment
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound impact that passion has on motivation and fulfillment in our lives. Understanding how passion influences these areas is crucial for finding and nurturing a fulfilling life path.
 
